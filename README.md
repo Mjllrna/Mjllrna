@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mjllrna
+- 👋 Hi, I’m @Emjiy
 - 👀 I’m interested in ... watching movies, series, any genre will do but right now I am more on to real crime.
 - 🌱 I’m currently learning ... BSPSYS
 - 💞️ I’m looking to collaborate on ...Study Buddy. char
